@@ -1,0 +1,1 @@
+# yourearningshop.com
